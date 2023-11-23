@@ -1,1 +1,0 @@
-# Bigcommerce-Dual-Heading-Color
